@@ -6,9 +6,9 @@ Desde jóvenes hemos escuchado que un buen cristiano también es un buen ciudada
 ### 📖 Diferentes visiones sobre la prosperidad  
 Existen varias formas de interpretar la relación entre fe y riqueza:  
 
-- **Teología de la miseria**: Cree que la pobreza es un camino hacia la santidad, olvidando que la salvación es por fe (Ef. 2:8-9).  
-- **Teología de la prosperidad**: Enseña que la fe garantiza riquezas materiales, poniendo a Dios al servicio del creyente (1 Tm. 6:5, 9-11).  
-- **Ética del trabajo** (visión correcta): Dios bendice el esfuerzo honesto y nos da la capacidad de producir riquezas si seguimos sus principios (Dt. 8:18).  
+- **Teología de la miseria**: Cree que la pobreza es un camino hacia la santidad(haciendo obras), olvidando que la salvación es por fe (Ef. 2:8-9).  
+- **Teología de la prosperidad**: Enseña que la fe garantiza riquezas materiales, poniendo a Dios al servicio del creyente, pero no es así las escrituras enseñan que es el creyente quien esta al servicio del Señor (1 Tm. 6:5, 9-11).  
+- **Ética del trabajo** (visión correcta): Dios bendice el esfuerzo honesto y nos da la capacidad de producir riquezas si seguimos sus principios, ejemplo su Diezmo (Dt. 8:18).  
 
 ### ⚖️ Pensamientos económicos y su contraste con la fe  
 Distintas visiones económicas y cómo contrastan con la fe cristiana:  
