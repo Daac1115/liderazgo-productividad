@@ -13,7 +13,7 @@ Existen varias formas de interpretar la relación entre fe y riqueza:
 
 - **Teología de la prosperidad:**
   Enseña que la fe garantiza riquezas materiales, poniendo a Dios al servicio del creyente, pero no es así.  
-  Las Escrituras enseñan que es el creyente quien está al servicio del Señor (1 Tm. 6:5, 9-11).
+  Las Escrituras enseñan que es el creyente quien está al servicio del Señor (1 Tm. 6:5, 9-11).  
   _**"Disputas necias de hombres corruptos de entendimiento y privados de la verdad,  
   que toman la piedad como fuente de ganancia; apártate de los tales."  
   "Porque los que quieren enriquecerse caen en tentación y lazo, y en muchas codicias necias y dañosas, que hunden a los hombres en destrucción y perdición; porque raíz de todos los males es el amor al dinero, el cual codiciando algunos, se extraviaron de la fe, y fueron traspasados de muchos dolores.  
